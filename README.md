@@ -7,6 +7,6 @@
 - 🌱 I’m currently learning Data Analysis 
 - 👯 I’m looking to collaborate on projects to better my skills and knowledge 
 - 📫 How to reach me: [Outlook](nnekafreda@outlook.com)
-- [LinkedIn](https://www.linkedin.com/in/nneka-chris-osaji-6a7774167)
+- [LinkedIn](https://www.linkedin.com/in/nneka-freda-chris-osaji-6a7774167)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love trying out new things.
